@@ -1,0 +1,1 @@
+# Alg_i_str_danych
